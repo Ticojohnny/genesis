@@ -4,8 +4,8 @@
 <br> 
 
 - Link to the [full transcript](https://docs.google.com/document/d/1lLrhe0pNKTsXMAtkJgOjelKSgwvCtCwLMimteEnDh7I/edit?usp=sharing)
-- Link to the [full recording](https://drive.google.com/file/d/1OgyF0myC90_Yu7hpiogLQcHR_4waOdQG/view?usp=sharing)
-- Link to the [full message log](https://drive.google.com/file/d/1iGB39795fad1aVIgr1C1oPmy2k25ggcF/view?usp=sharing)
+- Link to the [full recording](https://drive.google.com/file/d/1iGB39795fad1aVIgr1C1oPmy2k25ggcF/view?usp=sharing)
+- Link to the [full message log](https://drive.google.com/file/d/1OgyF0myC90_Yu7hpiogLQcHR_4waOdQG/view?usp=sharing)
 
 
 **Main action items**
